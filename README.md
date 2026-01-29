@@ -2,7 +2,7 @@
 
 Please contact **@shantagk** to see all my project sample, thanks!
 
-My resume: https://seawolf1024.github.io/resume.pdf
+Also see my project sample in my resume: https://seawolf1024.github.io/resume.pdf
 
 ## Manager's reference
 
